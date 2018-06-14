@@ -1,3 +1,5 @@
+Bon ok, j'ai fait de la merde, je me suis totalement perdue. C'est tout ce que j'avais à dire.
+
 # Partiel WEB 1 - P2020
 
 **Autorisation du téléphone pour le partage de connexion**
